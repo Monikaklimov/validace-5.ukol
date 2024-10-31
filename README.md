@@ -1,0 +1,1 @@
+# validace-5.ukol
